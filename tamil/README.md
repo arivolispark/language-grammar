@@ -85,4 +85,12 @@
               அ                                         உ                                  இ
 
 எ. கா.:    அப்பையன்                                  உப்பையன்                            இப்பையன்
+
+
+
+
+
+சான்று:
+https://hicaslanguages.files.wordpress.com/2020/04/e0ae9ae0af8ae0aeb2e0af8d-1.pdf
+
        
