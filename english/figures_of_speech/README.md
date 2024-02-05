@@ -6,3 +6,9 @@
 6. Preposition
 7. Conjunction
 8. Interjection
+
+
+
+*Gerund*:  A word which is both a noun and verb is a gerund.
+
+Example:  swimming
